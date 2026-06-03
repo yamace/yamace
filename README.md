@@ -18,9 +18,10 @@ $${\color{#6D9DAB} 𓈄۫ ݂     ﹢}$$　[atabook](https://fushiita.atabook.org
  <p align="center">
  yume　   shipper　 transmasc　 :palm_tree:
  </p>
- 
+  <p align="center">
  :tropical_drink:  abropoly　lone alpha　iwecau
- 
-$${\color{#6D9DAB} 𓈄۫ ݂     ﹢}$$　[atabook](https://fushiita.atabook.org/)　[rentry](https://rentry.co/portgas)　(   ´̣̣̥⠀ ᩙᩙ ` )
+  </p>
+<p align="center">
+$${\color{#6D9DAB} 𓈄۫ ݂     ﹢}$$　 <a href= "https://rentry.co/portgas"> rentry</a>　<a href= "https://fushiita.atabook.org/">ata </a> 　(   ´̣̣̥⠀ ᩙᩙ ` )
 </p>
 <br clear="right"/>
