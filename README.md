@@ -1,19 +1,17 @@
 <img align="left" width="435" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/6C23697C-54D6-4EFD-A855-C2C033689BB1%20(4).png">
 
-mentally  disabled　 black　8teen
+$${\color{#B99A4F}𐅛 ͚     𓈒ֵ۫𓏽}$$　 noxis　   he/star　   transmasc
 
-mentally  disabled　 black　8teen
+black　8teen　mentally 　disabled
 
- mentally  disabled　 black　8teen
+<img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/tumblr_97a69f1e1791bd64b2807b65be17ae43_3afad4ca_250.webp" />
 
- mentally  disabled　 black　8teen
-
- mentally  disabled　 black　8teen
+ hyper　   sharing　 yumeshipper　 e
  
- yume　   shipper　 transmasc　 :palm_tree:
+e　 abropoly　   abrorom　 loner alpha
 
  
- :tropical_drink:  abropoly　lone alpha　iwecau
+ :tropical_drink:  mood swings　iwecaut.　   kao
  
 $${\color{#6D9DAB} 𓈄۫ ݂     ﹢}$$　[atabook](https://fushiita.atabook.org/)　[rentry](https://rentry.co/portgas)　(   ´̣̣̥⠀ ᩙᩙ ` )
 
@@ -21,7 +19,7 @@ $${\color{#6D9DAB} 𓈄۫ ݂     ﹢}$$　[atabook](https://fushiita.atabook.org
 <img align="right" width="100" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/IMG_1014%20(3).png">  <img align="right" width="50" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/IMG_1014%20(3).png">  <img align="right" width="300" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/6C23697C-54D6-4EFD-A855-C2C033689BB1%20(8).png">
 
 <p align="center">
-       mentally  disabled　 black　8teen
+       multishipper　 fixation:　acelaw
  </p>
  <p align="center">
        mentally  disabled　 black　8teen
@@ -33,9 +31,9 @@ $${\color{#6D9DAB} 𓈄۫ ݂     ﹢}$$　[atabook](https://fushiita.atabook.org
         yume　   shipper　 transmasc　 :palm_tree:
  </p>
   <p align="center">
-       :tropical_drink:  abropoly　lone alpha　iwecau
+       fandom  dniuid　 cus　yall weird
   </p>
 <p align="center">
-       $${\color{#6D9DAB} 𓈄۫ ݂     ﹢}$$　 <a href= "https://rentry.co/portgas"> rentry</a>　<a href= "https://fushiita.atabook.org/">ata </a> 　(   ´̣̣̥⠀ ᩙᩙ ` )
+       $${\color{#6D9DAB} 𝜗𝒞˟}$$　 <a href= "https://rentry.co/portgas"> main acc</a>　<a href= "https://fushiita.atabook.org/"> extended </a> 　(｡•̀ㅁ•́｡)
 </p>
 <br clear="right"/>
