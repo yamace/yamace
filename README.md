@@ -4,7 +4,7 @@ $${\color{#B99A4F}𐅛 ͚     𓈒ֵ۫𓏽}$$　 <strong>nox</strong>is　   he/
 
 black　8teen　mentally 　disabled
 
-<img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/tumblr_97a69f1e1791bd64b2807b65be17ae43_3afad4ca_250.webp" />
+   <img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/tumblr_97a69f1e1791bd64b2807b65be17ae43_3afad4ca_250.webp" />
 
 $${\color{#E06D0D} hyper}$$　   <em>sharer</em>　 yumeshipper　 🍡
  
