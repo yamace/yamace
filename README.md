@@ -13,7 +13,7 @@ $${\color{#E06D0D} hyper}$$　   <em>sharer</em>　 yumeshipper　 🍡
  
  🔥 　 mood swings　iwecaut.　   (⁠ﾉﾟ⁠0ﾟ⁠)⁠ﾉ⁠ 
  
-$${\color{#B33D0B}  ͜͝ ͡  ݁⑅ִ۫　}$$　[atabook](https://fushiita.atabook.org/)　[rentry](https://rentry.co/portgas)　　  ͝𓈒♡
+$${\color{#B33D0B}  ͜͝ ͡  ݁⑅ִ۫　}$$　[atabook](https://fushiita.atabook.org/)　[rentry](https://rentry.co/portgas)　 [straw](https://fushiitas.straw.page/)
 
 <br clear="left"/>
 <img align="right" width="100" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/IMG_1014%20(3).png">  <img align="right" width="300" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/6C23697C-54D6-4EFD-A855-C2C033689BB1%20(8).png">
